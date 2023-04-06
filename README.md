@@ -6,7 +6,7 @@ I'm a developer with a second life as a designer and animator. I've spent my car
 - 💞️ Looking to collaborate on a bit of anything and everything. Especially 🌱 (climate), 🏃‍♂️ (wellness), 🎼 (music), and 📚 (education)
 - 👀 See some of my work at: [ElliotKGoldman.com](ElliotKGoldman.com), [Technical Writing](https://github.com/Elliot-KG/Technical_and_UX_Writing/blob/main/README.md), or [Design Work](ElliotKG.com)
 
-While not writing I'm usually: 🌲🏃🧗🍵🧋🎨🥁🎹🎵🪡🧶🌲
+While not working I'm usually: 🌲🏃🧗🍵🧋🎨🥁🎹🎵🪡🧶🌲
 
 ### Contact 📧
 
